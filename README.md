@@ -46,3 +46,12 @@
 
 # What's Next
 - At the moment the future of “Booming Comforts” is uncertain but what can be said is that it’s creators are proud of it. We do not want to see our site and business fall apart and be unused but it would be a difficult task to keep the business running without enough income being brought in from our sales. After the hard work we have all put into the site we want to see people enjoy what we’ve created, as that’s what our project was all about. It wasn’t just about selling our furniture, but selling the idea that there are ways to improve someone’s overall experience in anything, even the sale of furniture. Taking a personal and welcoming approach over the typical “very professional and to the point” approach separates us from the competition and makes us a more appealing option than somewhere that sells an item to you without caring about what happens to their customers in the future. We want our approach to live on and for people to recognize that there’s more to sales than just the sale itself, and that is what how we want “Booming Comforts” to live on.
+
+# References
+- Freeimages.com
+- Homedepot.com
+- Dailydreamdecor.com
+- Houzz.com
+- Twitter.com
+- Pinterest.com
+- Cabinetcorp.com
